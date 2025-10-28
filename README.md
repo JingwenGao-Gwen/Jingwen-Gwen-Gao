@@ -1,4 +1,4 @@
-# Jingwen-Gwen-Gao
+# JingwenGao-Gwen
 
 ### Hi there 👋 I'm Jingwen Gao， you can call me Gwen.  
 
